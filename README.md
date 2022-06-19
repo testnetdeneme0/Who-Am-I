@@ -8,5 +8,5 @@
 - [GitHub](https://github.com/testnetdeneme0).
 - I would also like to recommend a friend of mine who helped me a lot.
 - [Twitter](https://twitter.com/Ruesandora0).
-- We also have a very nice community. If you want to take a look the link is below.
+- We also have a very nice community. If you want to take a look the link is below.You can also find a lot of useful information in our community
 - [Forum](https://forum.rues.info/index.php).
